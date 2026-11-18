@@ -1,0 +1,1 @@
+readme was slop so here goes one from a human, this page does a lot of stuff, check it out and see if you like it
